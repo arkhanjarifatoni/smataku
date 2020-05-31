@@ -1,0 +1,2 @@
+# smataku
+belajar lagi
